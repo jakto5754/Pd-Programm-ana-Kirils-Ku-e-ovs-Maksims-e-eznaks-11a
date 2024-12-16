@@ -1,1 +1,0 @@
-# Pd-Programm-ana-Kirils-Ku-e-ovs-Maksims-e-eznaks-11a
